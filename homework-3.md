@@ -1,0 +1,1 @@
+тут так много, что все в [миро](https://miro.com/app/board/uXjVK9DOSX8=/?share_link_id=158207392385)
